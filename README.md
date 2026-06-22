@@ -45,6 +45,8 @@ I am a passionate Computer Science Engineering student focused on mastering core
 ---
 
 ## 🤝 Connect with Me
-* **Email:** [Your Email Address Here]
+* 📧 **Email:** [mehakguptaptk07@gmail.com](mailto:mehakguptaptk07@gmail.com)
+* 💼 **LinkedIn:** [mehak-gupta-b50693376](https://www.linkedin.com/in/mehak-gupta-b50693376?utm_source=share_via&utm_content=profile&utm_medium=member_android)
+
 * **LinkedIn:** [Your LinkedIn Profile Link Here]
 *
